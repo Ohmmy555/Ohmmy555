@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Ohmmy555(Ohmmy)
+- 👀 I’m interested in technology programming
+- 🌱 I’m currently learning College of Computing Khon Kaen University
+- 📫 How to reach me by email -> supphitan.p@kkumail.com
